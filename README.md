@@ -1,1 +1,8 @@
 # money-App
+RESUME
+My name is Nasywa Khaira Putri Cahyani, my nickname is Nasywa or Wawa. I live in desa Jatisari with my father and mother, and I have two siblings. I was born in Mojokerto on December 25,2009. I am currently 16 years old, and in 1 months I will turn 17. I have positive circle of friend, both at school and at home.
+One of my shortcomings is that I find it difficult to start a conversation with new people. However, I usually observe what they are doing or talking about before I join in; I also have a strength when it comes to giving presentations, I always feel confident standing in front of an audience because I always prepare what I need to convey.
+My hobbies are reading books and making snacks - such cookies, dimsum, and much more. I also really as cake enjoy learning to make things I've never tired before
+I am currently a student at SMKN I Dianggu. I previously attended SMPN 1 Dlanggu. I chose SMKN I Dianggu because I was interested in my chosen specialization Software Engineering and I have learnd a great deal about the field here Although I haven't achived any specific accolades yet, I will not give up.
+Back in junior high school, I actively participated in volleyball competitions and even made it to the finals. Now, in vocational high school, I focus on the PMR organization while still participating in volleyball as an extracurricular activity. I also completed a project involing the creation of a website useful for the school comunity, for which I received a high grade. And I once worked on a project that involved writing code to handle data.
+My plan for the future is to become a hard worker who serves as a role model for others. With the next five years, I am to own a business that is the result of my own hard work.
