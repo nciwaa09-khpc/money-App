@@ -1,5 +1,4 @@
-# money-App
-RESUME
+# RESUME
 My name is Nasywa Khaira Putri Cahyani, my nickname is Nasywa or Wawa. I live in desa Jatisari with my father and mother, and I have two siblings. I was born in Mojokerto on December 25,2009. I am currently 16 years old, and in 1 months I will turn 17. I have positive circle of friend, both at school and at home.
 One of my shortcomings is that I find it difficult to start a conversation with new people. However, I usually observe what they are doing or talking about before I join in; I also have a strength when it comes to giving presentations, I always feel confident standing in front of an audience because I always prepare what I need to convey.
 My hobbies are reading books and making snacks - such cookies, dimsum, and much more. I also really as cake enjoy learning to make things I've never tired before
